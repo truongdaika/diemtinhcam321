@@ -1,0 +1,2 @@
+# diemtinhcam
+diem tinh cam
